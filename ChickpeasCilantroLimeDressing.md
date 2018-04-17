@@ -1,4 +1,5 @@
 # Chickpeas with Cilantro-Lime Dressing
+Adapted from [Chickpeas with Cilantro-Lime Dressing](https://alexandracooks.com/2016/03/23/chickpeas-with-cilantro-lime-dressing/) to suit our dietary needs, tastes, and methods.
 
 ## INGREDIENTS
 ### for the salad
